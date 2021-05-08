@@ -1,1 +1,0 @@
-# ecowmin.github.io
